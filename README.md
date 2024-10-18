@@ -7,7 +7,8 @@
 
 - 📫 How to reach me **chandeepdina@gmail.com**
 
-- ⚡ Fun fact **I actually do think I'm funny :)**
+- ⚡ Fun fact **I actually do think I'm funny :)**![e36ec678-7984-4cdd-8e4c-a3932772ff8e](https://github.com/user-attachments/assets/acd5a102-62c9-45be-90da-ca7080028b27)
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
